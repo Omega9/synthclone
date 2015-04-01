@@ -1,0 +1,1 @@
+[![](http://api.flattr.com/button/flattr-badge-large.png)](http://flattr.com/thing/430169/synthclone-Synthesizer-cloning-software)
